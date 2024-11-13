@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Grand Theft Auto Series
 - 📫 How to reach me: You can reach me at Mokisantonico@gmail.com
 - ⚡ Fun fact: I love Jollibee
+- Hobbies: Videogames
